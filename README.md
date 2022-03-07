@@ -1,2 +1,1 @@
-# Hurricane-Privacy-Policy
-Hurricane Privacy Policy
+## Hurricane's Privacy Policy
